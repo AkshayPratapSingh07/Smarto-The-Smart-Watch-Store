@@ -1,1 +1,1 @@
-# Smarto-The-Smart-Watch-Store
+# Smarto-The Smart Watch Store
